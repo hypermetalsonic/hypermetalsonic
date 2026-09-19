@@ -25,7 +25,11 @@
     
   $\color{#aba7b5}{\textbf{\textit{———«✶»———}}}$
 
-  <b>DNI</b><br>✧ Basic DNI, don't talk to me if you're gonna be weird/hateful, I'm not afraid to hide/block. ✧<br>♦ Dsmp, Hazbin Hotel/Helluva Boss ♦<br><br>
+  <b>DNI</b><br>✧ Basic DNI, don't talk to me if you're gonna be weird/hateful, I'm not afraid to hide/block. ✧<br>♦ Dsmp, Hazbin Hotel/Helluva Boss ♦
+  
+  $\color{#aba7b5}{\textbf{\textit{———«✶»———}}}$
+
+<b>INTERESTS</b><br>✧ Phighting!, UT/DR, Halo, Warframe, Destiny, Transformers, Flight Rising, The Elder Scrolls, Sonic ✧<br>♦ I love art and music too! ♦
 </div>
 <br>
 <p align="center">
