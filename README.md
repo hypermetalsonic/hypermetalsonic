@@ -25,7 +25,7 @@
     
   $\color{#aba7b5}{\textbf{\textit{———«✶»———}}}$
 
-  <b>DNI</b><br>✧ Basic DNI, don't talk to me if you're gonna be weird/hateful, I'm not afraid to hide/block. ✧<br>♦ Dsmp, Hazbin Hotel/Helluva Boss ♦
+  <b>DNI</b><br>✧ Basic DNI, don't talk to me if you're gonna be weird/hateful, I'm not afraid to hide/block. ✧<br>♦ Dsmp/mcyt, Hazbin Hotel/Helluva Boss ♦
   
   $\color{#aba7b5}{\textbf{\textit{———«✶»———}}}$
 
